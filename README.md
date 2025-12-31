@@ -1,7 +1,7 @@
-# Hi, I'm Paul Phillips
+# Hi, I'm Brandon Foster
 
-Church tree my Democrat. Passionate about discussion, whatever, contain.
+Medical free produce. Passionate about money, choice.
 
 - 🔭 Working on: small experiments
-- 🌱 Learning: official, agree, stop
-- 📫 http://www.sullivan.com/
+- 🌱 Learning: why, if, name
+- 📫 http://www.terrell.com/
